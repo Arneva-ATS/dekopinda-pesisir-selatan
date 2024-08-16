@@ -1,1 +1,1 @@
-# dekopinda-pesisir-selatan
+# dekopinda-karanganyar
